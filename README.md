@@ -5,5 +5,4 @@
 - I edited all the live stream edits myself!
 - I’m interested in Modding,Game Develops,Web Design,Logo Design,Intro Video,Remix Music and Sfx sounds!
 - Familiar with programming languages ​​as they are C,C#,C++,HTML,CSS,JavaScript,PHP,JAVA,Python and many more!
-- 
--  You can contact me by Email:mr.dragandesing.de@gmail.com or Discord: https://discord.gg/xvf6Nb6SKb
+
